@@ -74,7 +74,7 @@ I believe in:
 
 ## 📫 Let's Connect
 
-- 📧 YOUR_EMAIL@example.com *pkumarrishik@gmail.com*
+- 📧 *pkumarrishik@gmail.com*
 
 ---
 
